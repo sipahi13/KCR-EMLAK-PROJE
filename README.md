@@ -1,0 +1,1 @@
+# KCR-EMLAK-PROJE
